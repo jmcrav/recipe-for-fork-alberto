@@ -8,7 +8,8 @@
 - 1 lime
 - 1 tsp salt
 - 1/2 onion
-- Do not add cilantro as it will taste like soap 
+- 20 cups cilantro
+
 
 ## Instructions
 
